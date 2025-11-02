@@ -30,7 +30,7 @@
    - Session Recording & Meeting Notes if you want to read a google doc.
       - https://docs.google.com/document/d/1ycOjVEvzYEleJsINHzO8C7WaynkQFywcbRBL9sV-K70/edit?usp=sharing
       - https://drive.google.com/file/d/1eBJ7R-Z-nFIhFF8B1Zr5LIkums2-62t2/view?usp=sharing
-         - I already watched it again ( New Drinking game & or nickname "Fundamental" :?? oops sorry i was thinking too much about fundamentals )
+         - I already watched it again ( New Drinking game & or nickname "Fundamental" :?? oops sorry i was thinking too much about fundamentals, and ended up saying "Fundamental" 95 times in 134 minuntes Enjoy )
       - QA asked during meet -> https://docs.google.com/spreadsheets/d/1Jx1ueVTdfSa8AcqyQ3llkJbkXz7jjyjJFqysPceq854/edit?usp=sharing
    - By: https://x.com/NeelSeth7 & https://growthx.club/ 
    - Leave Your Feedback At: [https](https://growthx.club/events/690455e57442138c9d6ece7d?feedback=true):
